@@ -1,0 +1,13 @@
+Ingredients ---
+
+4 skinless, boneless chicken breast halves
+
+¼ teaspoon salt
+
+⅛ teaspoon ground black pepper
+
+6 slices Swiss cheese
+
+4 slices cooked ham
+
+½ cup seasoned bread crumbs
